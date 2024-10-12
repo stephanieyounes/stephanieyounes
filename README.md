@@ -1,5 +1,5 @@
-![image](https://user-images.githubusercontent.com/60558403/144135610-8eab78ad-4ba8-4bd9-9acd-f9ad85f316b9.png)
-
+![STUDENT (669 x 331 px)](https://github.com/user-attachments/assets/6691a8c9-5fdd-4260-9d36-d993b5ec53c0)
+<!--![image](https://user-images.githubusercontent.com/60558403/144135610-8eab78ad-4ba8-4bd9-9acd-f9ad85f316b9.png)-->
 <h3 align="center">A passionate learner and constant grower!</h3>
 
 - 📫 How to reach me **https://www.linkedin.com/in/stephanieyounes/**
